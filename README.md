@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NJA07
+- 👀 I’m interested in Developpement 
+- 🌱 I’m currently learning TSX
+- 📫 How to reach me discord ◽ NJA#5061
